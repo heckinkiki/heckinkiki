@@ -1,14 +1,14 @@
 ![kikigif](images/Mossclan_banner_by_ghibli.webp)
 
 🌱 Hey! I'm Kierstin, but most people know me as Kiki. 
-###### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;she/her - 22, INFP
+###### she/her - 22, INFP
 
 ☁️ About Me
-###### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Graphic Design Major at SAIT
-###### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Aspiring Game Designer
+###### Graphic Design Major at SAIT
+###### Aspiring Game Designer
 
 🍂 Self proclaimed video game enjoyer
-###### &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Cozy, Horror, Story, Puzzle, Survival, and FPS games
+###### Cozy, Horror, Story, Puzzle, Survival, and FPS games
 
 🍄 Also a TV Show and Reading enthusiast on the side
 
